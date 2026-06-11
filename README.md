@@ -1,4 +1,4 @@
-# Hi, I'm Iqra Fatima Khan
+# Hi, I'm Iqra 
 
 MCA Candidate (2026) @ KLE Technological University, Hubli
 
